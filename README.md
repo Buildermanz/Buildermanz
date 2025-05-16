@@ -1,16 +1,18 @@
-## Hi there 👋
+## under construction ^_^
 
-<!--
-**Buildermanz/Buildermanz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+‿‿ For Pony town:
+- Dnc / do not copy my ponies please !
+- Int / interact except if dni is in my name !
+- Cxh / cuddles and hiding , cxh freely ! 
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  __ Stuff about me !!
+  - rentry link here /wip
+  - [pronouns.page](https://en.pronouns.page/@Regr4tor)
+  - carrd link here /wip
+  - [pronouns.cc](https://prns.cc/hgemt)
+  - straw.page here /check linked profile stuff
+  
+
+    
+__ not overworking myself anytime soon to get all the info pages done , bleh , come back next month
