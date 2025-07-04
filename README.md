@@ -1,4 +1,4 @@
-## under construction ^_^
+## outdated ( remaking soon )
 
 ‿‿ For Pony town:
 - Dnc / do not copy my ponies please !
