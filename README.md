@@ -2,10 +2,13 @@
 __
 - i am socially awkward.
 - if i want to int with you, ill probably crown you in hopes to int...
-- i love cxh, please, please come cxh me anytime please pleaasee
+- i love cxh, please, please come cxh me anytime please pleaase
+- I tend to get anxious easily and im paranoid hlelo
+- i struggle to make friends, please bmf :sob 
 
 
   ok this will be remade
 
 __ 
+
 My discord is 9thharbinger ! feel free to add me
