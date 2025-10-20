@@ -1,4 +1,7 @@
 ## This will be remade oneday ok?
+
+https://pantalone.atabook.org
+
 __
 - i am socially awkward.
 - if i want to int with you, ill probably crown you in hopes to int...
