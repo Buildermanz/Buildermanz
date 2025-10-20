@@ -6,6 +6,7 @@ __
 - I tend to get anxious easily and im paranoid hlelo
 - i struggle to make friends, please bmf :sob
 - i CANNOT take signs twin also tonetags would be appreciated
+- warning: i AM awkward with people ion know, have i said that
 
 
   ok this will be remade idk what im doing hi
